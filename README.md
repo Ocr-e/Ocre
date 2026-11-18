@@ -15,7 +15,7 @@
 
 ### 𝑱𝒖𝒔𝒕 𝒎𝒆
 
-> *"your favorite quote here."*
+> *"I don't love you.. I don't even know who you are"*
 
 <br>
 
